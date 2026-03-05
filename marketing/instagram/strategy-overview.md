@@ -1,5 +1,5 @@
-# Instagram Content Strategy: Pet Photographers Collective
-**Brand:** Ina J Photography / Pet Photographers Collective
+# Instagram Content Strategy: Ina J - The Pet Photo CEO / Pet Photographers Collective
+**Brand:** Ina J Photography /  Ina J - The Pet Photo CEO / Pet Photographers Collective
 **Audience:** Pet photographers (global) struggling with inconsistent bookings
 **Goal:** Educate and sell. Build trust, demonstrate expertise, nurture enquiries toward the Collective, workshops, and mentorship.
 **Posting frequency:** Daily (1 post per day)
